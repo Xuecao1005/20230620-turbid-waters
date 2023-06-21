@@ -2,4 +2,4 @@ Xue Cao, Zhao-Xuan Yu, Minwei Xie, Ke Pan, Qiao-Guo Tan*, Higher risks of copper
 
 https://doi.org/10.1021/acs.est.2c06447
 
-![](https://twitter.com/QiaoGuoTan1/status/1610484595019124736/photo/1.jpg)
+![](https://pubs.acs.org/cms/10.1021/acs.est.2c06447/asset/images/medium/es2c06447_0008.gif)
